@@ -40,4 +40,4 @@ Bank - Treasury</code><br/>
 <code style="color : lightskyblue"> Psalm 119:151</code>
 <br/>
 
-![Star](/art/Bottom%triangle%copy%2.JPG)
+![Star](/art/bottomTriangle.JPG)
