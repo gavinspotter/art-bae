@@ -1,5 +1,4 @@
-<code style="color : lightskyblue">
-Bank - Treasury</code><br/>
+<code style="color : lightskyblue"> Bank - Treasury</code><br/>
 
 ![bank](/art/synagogue.jpeg)
 <br/><br/>
