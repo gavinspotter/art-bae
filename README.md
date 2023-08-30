@@ -40,3 +40,9 @@
 <br/>
 
 ![Star](/art/bottomTriangle.JPG)
+
+<br/><br/>
+<code style="color : lightskyblue"> John 6:22</code>
+<br/>
+
+![Star](/art/Bottomleftstar2.JPG)
