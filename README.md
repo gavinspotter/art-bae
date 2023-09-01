@@ -46,3 +46,9 @@
 <br/>
 
 ![Star](/art/Bottomleftstar2.JPG)
+
+<br/><br/>
+<code style="color : lightskyblue"> Judges 11:32</code>
+<br/>
+
+![Star](/art/BottomRightStar2.jpg)
