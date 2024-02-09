@@ -1,3 +1,38 @@
+<code> Ripeness of crime/criminals</code><br/>
+
+![Ripeness of Crime Criminals](/art/Ripenessofcrimecriminals.jpg)
+<br/><br/>
+
+<code> Affliction of the Chalcedon Vamped </code><br/>
+
+![Affliction of the Chalcedon Vamped](/art/Afflictionofthrchalcedon%20vamp.jpg)
+<br/><br/>
+
+<code> Firestone Vamped </code><br/>
+
+![Firestone Vamped](/art/Firestone%20vamped.jpg)
+<br/><br/>
+
+<code> Swivel Joint Vamped </code><br/>
+
+![Swivel Joint Vamped](/art/Swiveljoint%20vamped.jpg)
+<br/><br/>
+
+<code> Thomas on our hands </code><br/>
+
+![Swivel Joint Vamped](/art/Thomas%20on%20our%20hands%20vamped.jpg)
+<br/><br/>
+
+<code> Thomas on our hands </code><br/>
+
+![Swivel Joint Vamped](/art/Thomas%20on%20our%20hands.jpg)
+<br/><br/>
+
+<code> Hidden in Paradise / Heaven w Jesus </code><br/>
+
+![Swivel Joint Vamped](/art/HiddenInParadiseWithJesus.jpg)
+<br/><br/>
+
 <code> Bank - Treasury</code><br/>
 
 ![bank](/art/synagogue.jpeg)
@@ -14,6 +49,16 @@
 <br/><br/>
 <code>Star </code>
 <br/>
+
+<code> aegis </code><br/>
+
+![infliction aegis](/art/Inflictionaegis.jpg)
+<br/><br/>
+
+<code> Zechariah </code><br/>
+
+![brain and ash](/art/666tacticallygenocidebrainandash.jpg)
+<br/><br/>
 
 ![Star](/art/JewishstarversesPreview2.jpeg)
 
