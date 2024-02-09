@@ -47,8 +47,6 @@
 
 ![AC-130](/art/Ac130sky.JPG)
 <br/><br/>
-<code>Star </code>
-<br/>
 
 <code> aegis </code><br/>
 
@@ -59,6 +57,9 @@
 
 ![brain and ash](/art/666tacticallygenocidebrainandash.jpg)
 <br/><br/>
+
+<code>Star </code>
+<br/>
 
 ![Star](/art/JewishstarversesPreview2.jpeg)
 
