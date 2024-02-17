@@ -3,6 +3,11 @@
 ![Ripeness of Crime Criminals](/art/Ripenessofcrimecriminals.jpg)
 <br/><br/>
 
+<code> Ripeness of crime/criminals Vamped</code><br/>
+
+![Ripeness of Crime Criminals vamped](/art/Ripenessofcrimecriminals%20vamped.JPG)
+<br/><br/>
+
 <code> Affliction of the Chalcedon Vamped </code><br/>
 
 ![Affliction of the Chalcedon Vamped](/art/Afflictionofthrchalcedon%20vamp.jpg)
