@@ -1,3 +1,13 @@
+<code> Sexual Rape Regression Model </code><br/>
+
+![Sexual rape regression model](/art/Sexual%20rape%20regression%20model%20Scorpio.JPG)
+<br/><br/>
+
+<code> Abaddon Murder Point </code><br/>
+
+![Murder at Abaddon Murder Point](/art/AbaddonMurderPoint%20purple.JPG)
+<br/><br/>
+
 <code> Ripeness of crime/criminals</code><br/>
 
 ![Ripeness of Crime Criminals](/art/Ripenessofcrimecriminals.jpg)
@@ -108,6 +118,17 @@
 
 ![bank](/art/Swivel%20joint.JPG)
 <br/><br/>
+
+<code> Abaddon Invisibility Key </code>
+
+![Abaddon Invisibility Key](/art/Abaddoninvisibilitykey.JPG)
+<br/><br/>
+
+<code> Engine Parts</code>
+
+![EU 100 million millionaires](/art/Eu%2050%20millionaires.JPG)
+<br/><br/>
+
 <code> Engine Parts</code>
 
 ![F-35](/art/Car%20parts%20finish.jpeg)
