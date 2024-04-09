@@ -1,3 +1,43 @@
+<code> industrial revolution </code><br/>
+
+![industrial revolution](/art/Industrial%20revolution%202024-3002^x.JPG)
+<br/><br/>
+
+<code> missiles </code><br/>
+
+![missiles](/art/Missiles.JPG)
+<br/><br/>
+
+<code> lion in the lattice </code><br/>
+
+![lion in the lattice](/art/MoneyisGod.JPG)
+<br/><br/>
+
+<code> Tayma is up </code><br/>
+
+![Tayma is up](/art/Taymaisup.JPG)
+<br/><br/>
+
+<code> Graphs to break uniform distribution </code><br/>
+
+![Graphs to break uniform distribution](/art/Graphstobreakuniformdistribution.JPG)
+<br/><br/>
+
+<code> desert stars </code><br/>
+
+![desert stars](/art/Hellsaw.JPG)
+<br/><br/>
+
+<code> Prion Disease </code><br/>
+
+![Prion Disease](/art/PrionDisease.JPG)
+<br/><br/>
+
+<code> heart cord engine </code><br/>
+
+![heart cord engine](/art/TheHeartCordEngine.JPG)
+<br/><br/>
+
 <code> Sexual Rape Regression Model </code><br/>
 
 ![Sexual rape regression model](/art/Sexual%20rape%20regression%20model%20Scorpio.JPG)
