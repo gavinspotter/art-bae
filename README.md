@@ -1,3 +1,15 @@
+<code> Car three </code><br/>
+
+![Rev6:2](/art/ZeuscarsYummyRev62.JPG)
+<br/><br/>
+
+<code> zeus and gf </code><br/>
+
+![zeus and gf](/art/LeonardoDiVinciPolarBearZeus.JPG)
+
+![zeus and gf](/art/LeonardoDiVinciPolarBearZeusGurlfriendhehe.JPG)
+<br/><br/>
+
 <code> Car two </code><br/>
 
 ![sedan](/art/Zeussedan.JPG)
