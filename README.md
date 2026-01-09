@@ -1,6 +1,11 @@
-<code> Car three </code><br/>
+<code> Car Four </code><br/>
 
-![Rev6:2](/art/ZeuscarsYummyRev62.JPG)
+![Rev6:2](/art/ZeusCarsGoLooksGood.JPG)
+<br/><br/>
+
+<code> mansion </code><br/>
+
+![Rev6:2](/art/ArchitectureDesignZeusChateauOne.JPG)
 <br/><br/>
 
 <code> zeus and gf </code><br/>
