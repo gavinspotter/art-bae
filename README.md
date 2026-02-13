@@ -20,6 +20,11 @@
 ![sedan](/art/Zeussedan.JPG)
 <br/><br/>
 
+<code> Psalm 93:1 </code><br/>
+
+![Rev6:2](/art/StGabrielsBibleforLoveandRestPsalm931.JPG)
+<br/><br/>
+
 <code> Hagia Sophia GPF </code><br/>
 
 ![HagiaSophia](/art/HagiaSophiaGPF.JPG)
