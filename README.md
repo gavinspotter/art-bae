@@ -1,3 +1,8 @@
+<code> TempleGrid </code><br/>
+
+![Rev6:2](/art/GreatPlainsTempleGrid.JPG)
+<br/><br/>
+
 <code> Vatican </code><br/>
 
 ![Rev6:2](/art/StPetersBasilicaIndustrialRevolutionGentleSky.JPG)
